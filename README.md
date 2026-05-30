@@ -1,1 +1,1 @@
-repo for Digital Marketing - digitalmarketting.html
+repo for Digital Marketing - digitalmarketing.html
